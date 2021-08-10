@@ -1,1 +1,2 @@
 # PRO---26-
+First of all, biryani is packed with calories. It is for sure that it has 400+ calories in one serving because it is prepared in plenty of oil and meat. These two components are what can make it potentially unhealthy. ... A diet that it is rich with red meat can lead to a series of health complications.s
